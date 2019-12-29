@@ -12,3 +12,6 @@ Mr.TechOne qui à lance en 2017 HarkoziaMC
 Site web [HarkoziaMC](https://harkoziamc.tk)
 
 Discord [Discord](https://discord.gg/GMtAeQ3)
+
+> By [RedProjet](https://redporjet.ga)
+
